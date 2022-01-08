@@ -1,4 +1,6 @@
-- 🙏Namaste 
+   ![code-coding](https://user-images.githubusercontent.com/72485535/148651275-ef009662-44e0-4073-b0ce-004953045b4c.gif)
+
+- 🙏Namaste!
 
      👋  I’m Vedant Mulherkar
 
