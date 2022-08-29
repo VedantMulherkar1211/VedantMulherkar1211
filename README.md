@@ -5,7 +5,7 @@
      👋  I’m Vedant Mulherkar
 
 
-Welcome to my little space on Github 🐈‍⬛ I'm a 🖥 computer student ,Developer.I like programming  😎 and designing.I am interested in extraterrestrials and trying to understand new things. I like cycling 🚲 playing piano 🎹  playing volleyball 🏐.  
+Welcome to my little space on Github 🐈‍⬛ I'm a 🖥 computer student ,Developer.I like programming  😎 and designing.I am interested in extraterrestrials and trying to understand new things.  
 
 
 - 👀 I’m interested in Exploring Science ...
